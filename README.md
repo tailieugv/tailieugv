@@ -4,7 +4,7 @@
 
 - Địa chỉ: Số 8 Trần Phú, P. Mộ Lao, Hà Đông, Hà Nội
   
-- SĐT: 0915521220
+- SĐT: 0814606698
 
 Sau hơn 6 năm hoạt động, Tailieugv com đã chia sẻ hơn 20.000.000 tài liệu phong phú và bổ ích, đứng đầu các website tương tự tại Việt Nam.
 
